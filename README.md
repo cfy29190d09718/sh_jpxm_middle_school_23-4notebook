@@ -1,0 +1,2 @@
+# sh_jpxm_middle_school_23-4notebook
+这是一本记录sh市jpxm中学23级四班全体同学作文素材的素材包，由全体同学编写而成，内容形式为jpg，仅供参考和浏览
